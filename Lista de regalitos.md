@@ -19,6 +19,8 @@ Esta es una guía de posibles regalos para darme en cualquier ocasión y momento
 <li><a href="https://www.amazon.com.mx/dp/B01HEQHKNM/?coliid=I2BDH6L39464U&amp;colid=12O5USKVY8JLU&amp;psc=1&amp;ref_=list_c_wl_lv_ov_lig_dp_it">Risk</a></li>
 <li><a href="https://www.amazon.com.mx/dp/B08RNKB9QN/?coliid=IGJDDU02F0A9A&amp;colid=12O5USKVY8JLU&amp;psc=1&amp;ref_=list_c_wl_lv_ov_lig_dp_it">Secret hittler</a></li>
 <li><a href="https://www.amazon.com.mx/Fantasy-Flight-Games-ZX02-Fallout/dp/B075B1WNDG/ref=asc_df_B075B1WNDG/?tag=gledskshopmx-20&amp;linkCode=df0&amp;hvadid=295434261084&amp;hvpos=&amp;hvnetw=g&amp;hvrand=913423622512325189&amp;hvpone=&amp;hvptwo=&amp;hvqmt=&amp;hvdev=c&amp;hvdvcmdl=&amp;hvlocint=&amp;hvlocphy=9141721&amp;hvtargid=pla-442463822073&amp;psc=1&amp;mcid=a1c0d14247c83baf8c3454b02e8d100b">Fallout board game</a></li>
+<li><a href="https://www.amazon.com.mx/Resident-Evil-The-Board-Game/dp/B0CHS43K99/ref=asc_df_B0CHS43K99/?tag=gledskshopmx-20&amp;linkCode=df0&amp;hvadid=673326237563&amp;hvpos=&amp;hvnetw=g&amp;hvrand=13429846004796553176&amp;hvpone=&amp;hvptwo=&amp;hvqmt=&amp;hvdev=c&amp;hvdvcmdl=&amp;hvlocint=&amp;hvlocphy=9141721&amp;hvtargid=pla-2223991149307&amp;psc=1&amp;mcid=54aacf90f14233fe92a745577f4e5935">Resident evil board game</a></li>
+<li><a href="https://www.amazon.com.mx/Dark-Souls-The-Board-Game/dp/B01MXLB67B/ref=sr_1_1?adgrpid=60519276889&amp;hvadid=589347308817&amp;hvdev=c&amp;hvlocphy=9141721&amp;hvnetw=g&amp;hvqmt=e&amp;hvrand=7396957708650042885&amp;hvtargid=kwd-299975069423&amp;hydadcr=27005_14532921&amp;keywords=dark+souls+board+game&amp;qid=1706133232&amp;sr=8-1&amp;ufe=app_do%3Aamzn1.fos.a9e70178-7411-4f75-8d83-e6796a165895">Dark souls board game</a></li>
 </ul>
 <h1 id="coleccionables-de-videojuegos">Coleccionables de videojuegos</h1>
 <p>Muchas cosas interesantes</p>
@@ -71,9 +73,24 @@ parecidas)</li>
 <p>Regalos caros, son puros caprichos la neta, pero por si quieres<br>
 <strong>volarme la peluca</strong>  🤯</p>
 <ul>
-<li><a href="https://www.amazon.com.mx/dp/B07HYTRL7D/?coliid=IAW0GEPQ7VTFP&amp;colid=12O5USKVY8JLU&amp;ref_=list_c_wl_lv_ov_lig_dp_it&amp;th=1">Batería electrónica</a> (Puede ser cualquiera de esa marca)</li>
-<li><a href="https://www.amazon.com.mx/MSI-G321CU-Pulgadas-FreeSync-Displayport/dp/B0BRM4K518/ref=sr_1_2?crid=L8N7WFQYW1WQ&amp;dib=eyJ2IjoiMSJ9.JOs4pO22Yyzp4TfJCyvkavqFCOD-fYHgLI3bjX0g-e9xbKN4J86-GA-FgnMtqe-assYV7vKuy8Jq51NvJW1qLbFhxIAT0JY6_Ozu3uDvMoOLNTVFL3vV8DzBTUt68AtR45e21RLvZNUPBPK5mKP5a8n39NvbXwkHiVjQVPET-tXAIVf1JIGO-4XJZ2-ZJMm-j1aTDjnRSOHiCVrF_HYHa0Z2JiNaP_XGh4P_XO1k1oc.buTuN_LPDGznxWBUvSDa651fTTd8Mbwucbbu-PXe5DQ&amp;dib_tag=se&amp;keywords=monitor+4k+144hz&amp;qid=1705458193&amp;sprefix=monitor+4k+%2Caps%2C182&amp;sr=8-2&amp;ufe=app_do%3Aamzn1.fos.a9e70178-7411-4f75-8d83-e6796a165895">Monitor 4k 144hz</a> (el tamaño o si es curvo no me importa)</li>
-<li><a href="https://a.co/d/f8D8Rs9">Impresora 3D</a> (esta marca y modelo en especial es bastante bueno)</li>
+<li>
+<p><a href="https://www.amazon.com.mx/dp/B07HYTRL7D/?coliid=IAW0GEPQ7VTFP&amp;colid=12O5USKVY8JLU&amp;ref_=list_c_wl_lv_ov_lig_dp_it&amp;th=1">Batería electrónica</a> (Puede ser cualquiera de esa marca)</p>
+</li>
+<li>
+<p>Monitor 4k: Distintas opciones: (Lo único importante es que cumpla con la resolución: <strong>4k</strong> o <strong>UWQHD</strong> (3840x2160 o 3,440x1,440 ) y los hercios (<strong>144hz</strong> o más) si tiene esas dos cosas entonces es correcto, el tamaño o si es curvo no me importa)</p>
+</li>
+<li>
+<p>(los que tienen estrella podría decirse que son los que más quiero, y los ví en oferta)<br>
+–   <a href="https://a.co/d/8pHs64B">MSI</a><br>
+– <a href="https://www.cyberpuerta.mx/Computo-Hardware/Monitores/Monitores/Monitor-Gamer-Curvo-ASUS-VG34VQL1B-LED-34-UltraWide-Quad-HD-Ultra-Wide-FreeSync-165Hz-HDMI-Bocinas-Integradas-2-x-4W-Negro.html?gad_source=1&amp;gclid=Cj0KCQiAqsitBhDlARIsAGMR1Rj0DIPycCT9N2bGLFeJZmNotycUcdzBEDPX4Du9aTUAujLuANxx7D8aAhQiEALw_wcB">Asus </a><br>
+–<a href="https://a.co/d/a9Hka5i">samsung⭐</a><br>
+–<a href="https://a.co/d/43WLzPE">lg⭐</a><br>
+–<a href="https://www.mercadolibre.com.mx/monitor-gamer-curvo-yeyian-sigurd-series-4000-ymc-va34-01-va-34-negro-100v240v/p/MLM21436271?from=gshop&amp;matt_tool=20003779&amp;matt_word=&amp;matt_source=google&amp;matt_campaign_id=15698047603&amp;matt_ad_group_id=158273412180&amp;matt_match_type=&amp;matt_network=g&amp;matt_device=c&amp;matt_creative=686627515335&amp;matt_keyword=&amp;matt_ad_position=&amp;matt_ad_type=pla&amp;matt_merchant_id=735123306&amp;matt_product_id=MLM21436271-product&amp;matt_product_partition_id=2267992298310&amp;matt_target_id=aud-2200038620392:pla-2267992298310&amp;gad_source=4&amp;gclid=Cj0KCQiAqsitBhDlARIsAGMR1Rjmxfuvu_A0khOeBiw9nGu-gi2pXGvE1t5OKYfgMzcJcw1O1r-uHyAaAlm1EALw_wcB#reviews">Yeyian ⭐⭐⭐</a><br>
+–<a href="https://www.cyberpuerta.mx/Computo-Hardware/Monitores/Monitores/Monitor-Gamer-Curvo-ASRock-Phantom-PG34WQ15R2B-34-Wide-Quad-HD-Ultra-Wide-FreeSync-165MHz-HDMI-Bocinas-Integradas-2x-2W-Negro.html">Asrock⭐⭐⭐</a></p>
+</li>
+<li>
+<p><a href="https://a.co/d/f8D8Rs9">Impresora 3D</a> (esta marca y modelo en especial es bastante bueno)</p>
+</li>
 </ul>
 <h1 id="últimas-aclaraciones">Últimas aclaraciones</h1>
 <p>❤️🩷🧡💛💚💙🩵💜❤️🩷🧡💛💚💙🩵💜❤️🩷🧡💛💚💙🩵💜❤️🩷🧡💛💚💙<br>
