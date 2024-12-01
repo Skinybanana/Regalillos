@@ -20,6 +20,8 @@ Esta es una guía de posibles regalos para darme en cualquier ocasión y momento
 <li><a href="https://a.co/d/0FdqT2V">Resident evil board game</a></li>
 <li><a href="https://a.co/d/bcH7P9r">Dark souls board game</a></li>
 <li><a href="https://a.co/d/5Q9SnGS">This war of mine</a></li>
+<li><a href="https://a.co/d/gj8gtrQ">Texas chainsaw massacre</a></li>
+
 </ul>
 <h1 id="coleccionables-de-videojuegos">Coleccionables de videojuegos</h1>
 <p>Muchas cosas interesantes</p>
@@ -40,17 +42,11 @@ Esta es una guía de posibles regalos para darme en cualquier ocasión y momento
 <p>para verme asterik.<br>
 Soy 5½ en tenis, si no hay que sea un 6 (por si se te olvida 😺)</p>
 <ul>
-<li><a href="https://share.temu.com/Ae0QF8sQ8XA">Botas negras de este estilo</a><br>
-(son ilustrativas, pueden ser de cualquier lado pero que se vean<br>
-parecidas)</li>
 <li><a href="https://converse.com.mx/tenis-converse-chuck-70-rojos-en-bota-de-lona-para-hombre-a08179c.html#?color=Rojo&amp;modelo=A08179C&amp;option-id=132">Converse</a> (el color me encantó)</li>
 <li><a href="https://www.shein.com.mx/Manfinity-Mode-Men-Solid-Zip-Up-Bomber-Jacket-p-3510959-cat-1983.html?mallCode=1">Chamarra</a> (este estilo de chamarras me gusta mucho, puede ser de ese mismo estilo en otros colores, cualquiera que te guste)</li>
 </ul>
 <h1 id="hobbies">Hobbies</h1>
 <ul>
-<li><a href="https://www.amazon.com.mx/BKB-Patines-Freeskate-Flying-Skates/dp/B09T3WF5DL/ref=asc_df_B09T3WF5DL/?tag=gledskshopmx-20&amp;linkCode=df0&amp;hvadid=547163952124&amp;hvpos=&amp;hvnetw=g&amp;hvrand=17578747526548620085&amp;hvpone=&amp;hvptwo=&amp;hvqmt=&amp;hvdev=c&amp;hvdvcmdl=&amp;hvlocint=&amp;hvlocphy=9141721&amp;hvtargid=pla-1663025804876&amp;mcid=669e64caeafa3bd1999251dbc31fcd4d&amp;th=1&amp;psc=1">Patines</a> (Estos son un ejemplo Lo importante es que sean tipo Freeskate Puede ser de cualquiera de estas marcas: powerslide, rollerblade, flying eagle, BKB)</li>
-<li><a href="https://www.amazon.com.mx/Afinador-Guitarra-Ac%C3%BAstica-El%C3%A9ctrica-Arieta%C2%AE/dp/B07DP4BDCC/ref=sr_1_1?crid=2ZPKAZ1FZMPMA&amp;dib=eyJ2IjoiMSJ9.VtUUGDYLbSlrx35Rr0d4DDRqOA3JRQ4eG2sTKWrpMBVQ1NW5U051F_53KPNkklqPx6Yxl9zkIy555G3_IlDDMYVeWtXwAcP7CJt1SuSKAgec6--fX8LTqq4-hKtopnqWeqDRR4j-9_V2FkhwldDF60a0St_8IZRdRmTirVNRayQu_JuTJabf9aYPP-x7iCsQzOAuk7xLFUIhvTQoHg1bMEb9SCTZ0jehSUiWTI71SX8.JuwYUDu4kumUF_7K-s5xPcA_WM5pZc1g3f1qs0lGzTQ&amp;dib_tag=se&amp;keywords=afinador+electrico&amp;qid=1705458762&amp;sprefix=afinador+e%2Caps%2C160&amp;sr=8-1&amp;ufe=app_do%3Aamzn1.fos.4e545b5e-1d45-498b-8193-a253464ffa47">Afinador electrónico</a></li>
-<li><a href="https://www.amazon.com.mx/Behringer-UC200-Ultra-Chorus-Uc200/dp/B000Y30NAA/ref=sr_1_2?crid=2LZLOX512JTA6&amp;dib=eyJ2IjoiMSJ9.WVlpHadRsCOXSrsLwJijlAD5nb6FoXjWi8GDyG4B_vQKeXQ7OYWr4MlkMzpqXiProygporXKcqjri2hSVyK6WIpgQrDUa-rKuOLKxwzev80vckPft_mYzwO_rUeNxvKtSRRrRQ0YykP-UIu1EmOCz0sPbrHP_5h6rb_BSYZOKUakny3Gdo5DpBJOuaWsg7PzO9ssQ_oSl65Zq3-wiH4iXgV0WP2zAEI5HnB7w8ODMcc.qgPAq0kAnSc17DcIuz2USn6c2oEsic8sbG4rMhwIM20&amp;dib_tag=se&amp;keywords=pedal%2Bchorus%2Bguitarra&amp;qid=1705459419&amp;sprefix=pedal%2Bchorus%2B%2Caps%2C128&amp;sr=8-2&amp;ufe=app_do%3Aamzn1.fos.19d97c10-80a3-4566-8ed8-d0331185c744&amp;th=1">Pedal coro</a></li>
 <li><a href="https://www.amazon.com.mx/Fallout-Vault-Dwellers-Official-Cookbook/dp/168383397X/?_encoding=UTF8&amp;pd_rd_w=cQZYn&amp;content-id=amzn1.sym.af0809cd-46b5-4534-977c-a688ad8bb72f%3Aamzn1.symc.50e00d6c-ec8b-42ef-bb15-298531ab4497&amp;pf_rd_p=af0809cd-46b5-4534-977c-a688ad8bb72f&amp;pf_rd_r=6TK7TTG8B6AQMAGSFMPG&amp;pd_rd_wg=9kekT&amp;pd_rd_r=c787f3f3-bd92-41b2-8d92-8404f9b2b439&amp;ref_=pd_gw_ci_mcx_mr_hp_atf_m">Libro de cocina fallout</a></li>
 <li><a href="https://www.amazon.com.mx/Minecraft-Gather-Cook-Official-Cookbook/dp/1647228263/?_encoding=UTF8&amp;pd_rd_w=cQZYn&amp;content-id=amzn1.sym.af0809cd-46b5-4534-977c-a688ad8bb72f%3Aamzn1.symc.50e00d6c-ec8b-42ef-bb15-298531ab4497&amp;pf_rd_p=af0809cd-46b5-4534-977c-a688ad8bb72f&amp;pf_rd_r=6TK7TTG8B6AQMAGSFMPG&amp;pd_rd_wg=9kekT&amp;pd_rd_r=c787f3f3-bd92-41b2-8d92-8404f9b2b439&amp;ref_=pd_gw_ci_mcx_mr_hp_atf_m">Libro de cocina Minecraft</a></li>
 <li><a href="https://tiendapanini.com.mx/mob-psycho-100-boxset">Boxset de mob</a></li>
@@ -60,7 +56,6 @@ parecidas)</li>
 <p>Cosas no muy esenciales para mi escritorio</p>
 <ul>
 <li><a href="https://a.co/d/6lWh8BU">Pixel art ditoo</a></li>
-<li><a href="">KVM Switch</a> (Esto es básicamente para poder conectar mis monitores y periféricos a un “HUB” de manera que si quiero trabajar en la laptop del trabajo, puedo usar mi teclado, mouse y monitores con sólo pulsar un botón, lo importante es que tenga compatibilidad con 2 monitores y que soporte 4k y 60fps)</li>
 </ul>
 <h1 id="juguetes">Juguetes</h1>
 <p>Por si quieres darme algo no muy caro</p>
@@ -82,7 +77,6 @@ parecidas)</li>
 <strong>volarme la peluca</strong>  🤯</p>
 <ul>
 <li><s>Monitor 144hz</s> <strong>Peluca volada</strong>  🤯</li>
-<li><a href="https://a.co/d/f8D8Rs9">Impresora 3D</a> (esta marca y modelo en especial es bastante bueno)</li>
 </ul>
 <h1 id="últimas-aclaraciones">Últimas aclaraciones</h1>
 <p>❤️🩷🧡💛💚💙🩵💜❤️🩷🧡💛💚💙🩵💜❤️🩷🧡💛💚💙🩵💜❤️🩷🧡💛💚💙<br>
