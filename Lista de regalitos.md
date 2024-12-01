@@ -1,6 +1,4 @@
 ---
-
-
 ---
 
 <h1 id="hoooola-mi-amor">Hoooola mi amor</h1>
@@ -55,6 +53,8 @@ parecidas)</li>
 <li><a href="https://www.amazon.com.mx/Behringer-UC200-Ultra-Chorus-Uc200/dp/B000Y30NAA/ref=sr_1_2?crid=2LZLOX512JTA6&amp;dib=eyJ2IjoiMSJ9.WVlpHadRsCOXSrsLwJijlAD5nb6FoXjWi8GDyG4B_vQKeXQ7OYWr4MlkMzpqXiProygporXKcqjri2hSVyK6WIpgQrDUa-rKuOLKxwzev80vckPft_mYzwO_rUeNxvKtSRRrRQ0YykP-UIu1EmOCz0sPbrHP_5h6rb_BSYZOKUakny3Gdo5DpBJOuaWsg7PzO9ssQ_oSl65Zq3-wiH4iXgV0WP2zAEI5HnB7w8ODMcc.qgPAq0kAnSc17DcIuz2USn6c2oEsic8sbG4rMhwIM20&amp;dib_tag=se&amp;keywords=pedal%2Bchorus%2Bguitarra&amp;qid=1705459419&amp;sprefix=pedal%2Bchorus%2B%2Caps%2C128&amp;sr=8-2&amp;ufe=app_do%3Aamzn1.fos.19d97c10-80a3-4566-8ed8-d0331185c744&amp;th=1">Pedal coro</a></li>
 <li><a href="https://www.amazon.com.mx/Fallout-Vault-Dwellers-Official-Cookbook/dp/168383397X/?_encoding=UTF8&amp;pd_rd_w=cQZYn&amp;content-id=amzn1.sym.af0809cd-46b5-4534-977c-a688ad8bb72f%3Aamzn1.symc.50e00d6c-ec8b-42ef-bb15-298531ab4497&amp;pf_rd_p=af0809cd-46b5-4534-977c-a688ad8bb72f&amp;pf_rd_r=6TK7TTG8B6AQMAGSFMPG&amp;pd_rd_wg=9kekT&amp;pd_rd_r=c787f3f3-bd92-41b2-8d92-8404f9b2b439&amp;ref_=pd_gw_ci_mcx_mr_hp_atf_m">Libro de cocina fallout</a></li>
 <li><a href="https://www.amazon.com.mx/Minecraft-Gather-Cook-Official-Cookbook/dp/1647228263/?_encoding=UTF8&amp;pd_rd_w=cQZYn&amp;content-id=amzn1.sym.af0809cd-46b5-4534-977c-a688ad8bb72f%3Aamzn1.symc.50e00d6c-ec8b-42ef-bb15-298531ab4497&amp;pf_rd_p=af0809cd-46b5-4534-977c-a688ad8bb72f&amp;pf_rd_r=6TK7TTG8B6AQMAGSFMPG&amp;pd_rd_wg=9kekT&amp;pd_rd_r=c787f3f3-bd92-41b2-8d92-8404f9b2b439&amp;ref_=pd_gw_ci_mcx_mr_hp_atf_m">Libro de cocina Minecraft</a></li>
+<li><a href="https://tiendapanini.com.mx/mob-psycho-100-boxset">Boxset de mob</a></li>
+
 </ul>
 <h1 id="gadgets">Gadgets</h1>
 <p>Cosas no muy esenciales para mi escritorio</p>
@@ -89,4 +89,3 @@ parecidas)</li>
 Te recuerdo que te amo muchísimo, y como mencioné arriba, cualquier cosa que me des me va a gustar, puede ser algo de esta lista o algo que hayas visto que te recuerde a mí.<br>
 También ya sabes que me gustan mucho mucho muchísimo las cosas cursis en especial si están hechas a mano por tí.</p>
 <p><img src="https://i.pinimg.com/originals/6f/bb/93/6fbb93d8bae6fca95251f99b3cb635d5.jpg" alt=""></p>
-
